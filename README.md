@@ -1,0 +1,2 @@
+# toho_music_covers
+东方project同人音乐集合的专辑图片
